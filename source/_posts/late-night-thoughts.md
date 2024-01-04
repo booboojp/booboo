@@ -1,3 +1,6 @@
+---
+title: Late Night Thoughts
+---
 Hey Floofs and Cuties, I am sorry for writing this but it is late in the night and I had some thoughts.
 First thing is I found an artist I like, his name is NF.
 Anyways the grind never stops so here goes, but before I get writing I do need to let you know that my mind is just occupied with a past partner, I am sure you all know what that feels like.
